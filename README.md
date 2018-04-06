@@ -1,0 +1,1 @@
+# mininam_ADJ
